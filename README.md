@@ -1,3 +1,3 @@
 ## Hi im Calion!
-### Im currently working on a 3d CMMM mod called 3DMachine (3dm)
+### Im currently working on absolutly nothing bcs i have no project ideas.
 
